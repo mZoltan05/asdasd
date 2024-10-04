@@ -1,0 +1,2 @@
+# asdasd
+órai projekt
